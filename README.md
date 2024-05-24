@@ -1,2 +1,2 @@
-# portofolioAllan
-creating a portofolio
+# Beatrice-Gathogo
+Beatrice Gathogo personal profile
